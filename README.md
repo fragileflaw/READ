@@ -1,81 +1,59 @@
-   ﾠ　 　 　ﾠ 　![](https://64.media.tumblr.com/3594706d0171dc70e856fa1c7addd4a6/e1363fcb45235c50-15/s640x960/aa1fd5f915e8b915416633d2dab51dbf8faf81c9.pnj)
-　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　　　 　ﾠ　    　<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/4eff4c2c-429f-49d0-8443-0ca888c173d5" />
+<p align="left">
+<img alt="image" src=https://64.media.tumblr.com/4ed17e2df6e883e0453877d9470357cb/be1a0ac4e48e3c6d-f4/s2048x3072/500bc1f609042380d28568902a5098ab6ac82e55.pnj
+  width="550" 
+  height="550" />
+</p>
+<p align="left">
+<img alt="image" src=https://64.media.tumblr.com/72e5902c2f0a1aaa063af4536113f934/44f914a07ac3194e-3d/s2048x3072/c9547e345835c4e05e5d46c7265f7943442df24b.pnj
+  width="550" 
+  height="550" />
+</p>
 
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　       　ﾠ　　ﾠ  　　　**‿︵˓ ʚᲘ︵𐑼ɞ ˓ ︵ ͜**
-      
-      
-      
-      
- 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     　   　  　˚ .͜͝ ݃   　  _**𝓗ori**_    　   ۪۫۫𓏫   　  _thᵉy/thᵉm_ 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　                      
-            　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  　ﾠ ͝ |   　  '0<sub>5݃</sub>   　   𓏼˚̣̣̣  ݃   　  pan   　  𓎢𓎡 　 　 　 　ﾠ　    　　 　ﾠ　　　 　 　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　 　  ﾠ　  　　　 　ﾠ　    　                   
-ﾠ　　 　  ﾠ　  　　　ﾠ　　 　 　　 ﾠ　　 ﾠ 𓏴   ◟‿ ◞   　  *₍ᐢᐢ₎*  　   ۠　 .  　  ℐ<sup>NFP</sup>  　  𓈒   ͜͝ | ͜͝ |།ིྀ ͝ ⠀ 　
+<img width="450" height="500" alt="Untitled294_20260225233525" src="https://github.com/user-attachments/assets/3592d3e8-2c67-435e-99fe-03d599bfeabc" align="right" />
 
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　      　ﾠ　          ![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-         　 　ﾠ　　　 　 　ﾠ　            　                       　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 **‿︵˓ ʚ  BYF  ɞ ˓ ︵ ͜**             　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　 
-            
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
-ꪔ̤̫  <sup>'m honestly very slow w/ conversations and comprehension</sup>                                                                                                                            
-
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>have a habit using silly gifs and emotes</sup>                                                                                                                                   
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>yaps too much (whether ranting or something I really like)</sup>                                                                                                                    
-         　 　ﾠ　　　 　 　ﾠ　                                     　             **⚠︎ DNI ˒﹚)ˎˊ˗**
-            
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                          
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>BASIC DNI (proshippers, racists, homophobes, genuine being a weirdo, etc.)</sup>
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>I don't mind conversing with minors, just don't be weird whenever I cosplay a certain character. Please.</sup>
- 
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-ꪔ̤̫  <sup>oversexualization</sup>                                                                                                                                                                                                                                                                       
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ﾠ　　　 　　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　　　 　ﾠ　    　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ　    　 　     ﾠ　　   　  ﾠ　  　<img width="750" height="100" alt="image" src="https://github.com/user-attachments/assets/0f35a119-bcd3-4671-b6f7-baa5716b5d11" />
-      　 　ﾠ　　　 　 　ﾠ　            　                    　 　ﾠ　　　 　 　ﾠ　            　              　 　                  　ﾠ 　       　　         　         　       　ﾠ　　ﾠ  　　
-
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                   
-
-   **╰› ˗ˏˋ ꒰ 𝕴<sup>nts</sup> ꒱ ˎˊ˗**
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   **𔓐𑇓 RBLX**
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                                      
-   ୨ৎ <sub>SEWH</sub>
-
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>May Madness 2012</sub>
-
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>P!</sub>
-
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>4SKN</sub>
-
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>ARGs</sub>
-    
-   **𔓐𑇓 Horror**
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>Halloween (all frnchs)</sub>
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>Silent Hill ( " " )</sub>
-   
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ୨ৎ <sub>CP (creepypasta)</sub>
-      
-                                                                                                                                                                                                                                                                                                                                                                                                                        
-   ﾠ　　 　    ﾠ　　 　ﾠ　   ﾠ　　 　ﾠ　     ﾠ　　 　   ﾠ   ﾠ　　 　 ﾠ　   ﾠ　　 　ﾠ　　　ﾠ　　      　 　ﾠ　　　 　      　 　ﾠ　　　 　 　ﾠ　             　ﾠ　               　ﾠ　                　            　ﾠ　                      ﾠ　 　 　ﾠ 　   ﾠ　![](https://64.media.tumblr.com/052dd4359070fc8b8eeda20e58ccdc4e/a565e23a2d8c2f19-93/s640x960/5fc0fb35af1be6fbd21655c199fae66cf9b7448b.pnj)
-
-　 　ﾠ　　　 　 　ﾠ　　 　ﾠ　   　 　ﾠ　　 　ﾠ<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/96e42027-39f8-40ce-a068-2630c9eb8398" />
+<p align="center">
+<img src=https://mocha.crd.co/assets/images/gallery23/2f251f17.gif>
+<img src="https://komarev.com/ghpvc/?username=adoresyu&label=Psychological%20Evaluations%20&color=7b7d94&style=flat" alt="adoresyu" />
+<img src=https://mocha.crd.co/assets/images/gallery23/7a2cd3de.gif>
+</p>
+<p align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.herokuapp.com?font=Playfair+Display&size=10&pause=1000&color=DCDCDCEE&center=true&width=435&lines=%E2%9D%9D+Alright%2C+let's+get+this+started.+%E2%9D%9E" alt="Typing SVG" /></a>
+</p>
+<br>
+<h5 align="center">𝒜sh ‎ 𓈒 ‎ 𝒢lass‎ ‎ ( 𝒢lassy )
+$$\quad$$
+<h5 align="center">20 ‎ ,‎‎ ‎ any‎‎ ‎ prns‎
+$$\quad$$
+<h5 align="center">c‎ ‎+ h ‎ ,‎‎ ‎ int‎‎ ‎ freely‎ ‎ -‎ ‎ whisp‎‎ ‎ preferred
+$$\quad$$
+<h5 align="center">18+ ‎ . ‎ occassionally on safe w friends ‎ !
+$$\quad$$
+<h5 align="center">always ‎iwec ‎ ! ‎ v tired student ‎ 
 
 
-   ﾠ     　      　 　ﾠ   ﾠ　 <img width="640" height="255" alt="image" src="https://github.com/user-attachments/assets/206651c1-8664-4740-b98c-75b1fe313a56" />
 
+
+<br>
+<br>
+<br>
+<br>
+<br>
+<br>
+<p align="center">
+  <I><sub><i>❝ ‎ 𝓘 don't care what they say</I></sub>
+  <br/>
+  <sub><I>𝓘'm just trying to be one of the boys</I></sub>
+  <br/>
+  <sub><I>𝓢o you can't change your mind</I></sub>
+  <br/>
+  <sub><I>𝓨ou can never stand alone in the dark, oh, baby, so ‎ ❞</I></sub>
+<p align="left">
+<img alt="image" src=https://64.media.tumblr.com/72e5902c2f0a1aaa063af4536113f934/44f914a07ac3194e-3d/s2048x3072/c9547e345835c4e05e5d46c7265f7943442df24b.pnj
+  width="550" 
+  height="550" />
+</p>
+<p align="left">
+<img alt="image" src=https://64.media.tumblr.com/5bbe9e8393b9660b5d6415bfd9c06338/be1a0ac4e48e3c6d-f0/s2048x3072/ecc8030d94d0afeaf41202b4c9722709c31aabbc.pnj
+  width="550" 
+  height="550" />
+</p>
